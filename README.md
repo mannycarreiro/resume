@@ -1,6 +1,6 @@
 # Emanuel (Manny) Carreiro
 
-_Application Release Engineer from Hamilton Ontario_ <br<
+_Application Release Engineer from Hamilton Ontario_ <br>
 
 [Email](mailto:carreiro.emanuel@outlook.com) / [LinkedIn](https://ca.linkedin.com/in/emanuel-carreiro) / Cell: (416)268-5111
 
